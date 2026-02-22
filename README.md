@@ -4,7 +4,6 @@
 Simple words, serious work.
 We build the future — overnight.`
 
-🌍 Based in **52/4 Moo 8, Tiwanon Rd, Bangkasor, Mueang Nonthaburi, Nonthaburi 11000, Thailand**  
 ✉️ Contact us at **[2moreroles.official@gmail.com](mailto:2moreroles.official@gmail.com)**
 
 ## 💭 What We Believe
